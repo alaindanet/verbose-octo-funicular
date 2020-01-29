@@ -1,2 +1,2 @@
 
-c'est pas cool
+c'est pas cool!
